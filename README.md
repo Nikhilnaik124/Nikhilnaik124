@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nikhilnaik124
+- 👀 I’m interested in programming,ethical hacking ...
+- 🌱 I’m currently learning information science
+- 📫 Just send a email to mynameisunknown52@gmail.com
